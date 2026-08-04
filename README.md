@@ -1,0 +1,1 @@
+# TAKUMINN-EarthquakeINFO
